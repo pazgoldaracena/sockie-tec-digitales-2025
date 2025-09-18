@@ -1,0 +1,1 @@
+# sockie-tec-digitales-2025
